@@ -1,4 +1,4 @@
-# 
+# Exclusivo Icecream PDF Editor plugins para Mac OS | Principal Icecream PDF Editor plugins para PC Windows. Con facturación y copias de seguridad automáticas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
